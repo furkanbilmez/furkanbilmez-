@@ -77,7 +77,7 @@ _BSc in Electrical and Electronics Engineering_
 ## 📫 Connect With Me
 
 - 🌐 [LinkedIn – furkanbilmez](https://linkedin.com/in/furkanbilmez)
-- 📨 furkan.bilmez@email.com
+- 📨 furkanbilmez8@gmail.com
 - 💼 Portfolio (Coming soon!)
 
 ---
